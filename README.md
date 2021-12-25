@@ -6,6 +6,6 @@ I am a Web developer <br>
 **hello@mohamedshibin.me** <br>
 NB(night 10:00 manikk shesham vilikanda edukathilla)
 
-# No CSS No Party 😅
+# No CSS No Party 😹
 ![no party](https://media.giphy.com/media/ibGFpMv1Uoais/giphy.gif)
 
