@@ -1,6 +1,6 @@
 # Mohamed shibin <br>
 ### Hello my dear gorgeous friends on the internet
-I am a UI / UX Designer & Web Developer <br>
+I am a UI / UX Designer <br>
 ### contact me:
 **6238744419** <br>
 **hello@mohamedshibin.me** <br>
